@@ -1,4 +1,4 @@
-# Hej, välkommen!
+# Hej, välkommen till Sober Still Stupid!
 
 Här är våra show notes.
 
